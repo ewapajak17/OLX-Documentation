@@ -13,22 +13,22 @@ Below you will find a few small tips.
 
 **1. Be patient**
    
-   Initiate contact by sending an e-mail first and if your message remains unanswered for a few days, send a reminder e-mail. An SME is certainly a busy person so allow them some time to respond. If that approach fails, explore alternative channels such as LinkedIn or other social media. Consider making a phone call, and if you work in the same location, try to meet an SME in person. If that proves ineffective, get in touch with other team members who might have connections with an SME.
+Initiate contact by sending an e-mail first and if your message remains unanswered for a few days, send a reminder e-mail. An SME is certainly a busy person so allow them some time to respond. If that approach fails, explore alternative channels such as LinkedIn or other social media. Consider making a phone call, and if you work in the same location, try to meet an SME in person. If that proves ineffective, get in touch with other team members who might have connections with an SME.
 
 **2. Be prepared**
 
-    Before contacting an SME, conduct thorough research and gather information about the issue you want to clarify. Prepare specific questions and incorporate some of them into your e-mail. Create an impression that you are well-versed in the subject, thereby reducing the necessity for them to dedicate significant time to explaining basic concepts. This approach aims at encouraging an SME to be more receptive to meeting with you.
+Before contacting an SME, conduct thorough research and gather information about the issue you want to clarify. Prepare specific questions and incorporate some of them into your e-mail. Create an impression that you are well-versed in the subject, thereby reducing the necessity for them to dedicate significant time to explaining basic concepts. This approach aims at encouraging an SME to be more receptive to meeting with you.
 
 **3. Be polite but determined**
 
-    Highlight the significance of the information you are seeking and underscore the valuable contribution an SME can make to your work. Set a reasonable deadline and inquire if it aligns with the SME’s schedule. If not, invite them to propose an alternative timeframe. Always express gratitude for the assistance provided by an SME.
+Highlight the significance of the information you are seeking and underscore the valuable contribution an SME can make to your work. Set a reasonable deadline and inquire if it aligns with the SME’s schedule. If not, invite them to propose an alternative timeframe. Always express gratitude for the assistance provided by an SME.
 
 **4. Be helpful**
 
-    Extend your support whenever an SME may need it, demonstrating that you are a valuable team member – a colleague who can add value to their work.
+Extend your support whenever an SME may need it, demonstrating that you are a valuable team member – a colleague who can add value to their work.
 
 **5. Be friendly**
 
-    After all, you might discover shared interests with an SME. A formal business meeting could evolve into a conversation about personal interests. Treat your SME with friendliness and respect.
+After all, you might discover shared interests with an SME. A formal business meeting could evolve into a conversation about personal interests. Treat your SME with friendliness and respect.
 
-Be persistent and assertive when your work and the users’ general interest are at stake. Being part of a team means dealing with various people and coping with different situations. Good luck!
+Remember: Be persistent and assertive when your work and the users’ general interest are at stake. Being part of a team means dealing with various people and coping with different situations. Good luck!
